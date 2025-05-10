@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently studying on UPC.
+- 🔭 I’m currently at university.
 - 🌱 I’m currently learning Exploration technology and engineering.
 - 🤔 I’m looking for help with learning programme.
 - 💬 Ask me about Anything and I'll be glad to answer.
